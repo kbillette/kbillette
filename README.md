@@ -8,4 +8,4 @@ I have very limited coding skills but I'm eager to learn :) I enjoy coding becau
 
 [codepen](https://codepen.io/kbillette)
 [behance](https://www.behance.net/kristinbillett1)
-![alt text](image.jpg)
+![hat mouse letter from stardew valley](hat_mouse_letter.png)
