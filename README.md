@@ -6,6 +6,10 @@ I'm currently working towards a major in Graphic Information Technology through 
 
 I have very limited coding skills but I'm eager to learn :) I enjoy coding because it allows you to be creative. 
 
+😈
 [codepen](https://codepen.io/kbillette)
+
+🧁
 [behance](https://www.behance.net/kristinbillett1)
+
 ![hat mouse letter from stardew valley](hat_mouse_letter.png)
